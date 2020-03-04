@@ -1,4 +1,4 @@
-# book
+# recipe book
 
 How to make an egg
 
