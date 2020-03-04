@@ -12,11 +12,4 @@ How to make an egg
 
 5.) scoop out egg and put on plate
 
-Hashbrowns 
-
-Ingredients
-
-* Potato: you need potatos, duh
-* Lard: to fry ur potatos
-* Salt: salt your hashes, kids.
 
